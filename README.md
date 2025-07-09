@@ -1,0 +1,1 @@
+# kogoshi_satoru_step7
